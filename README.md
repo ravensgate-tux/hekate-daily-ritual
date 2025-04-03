@@ -16,9 +16,10 @@
 
 ## 2. 祈りの言葉
 
-> Hail Hekate, Keeper of the Keys, Goddess of the Crossroads and the Night.  
-> Bless this day with clarity, strength, and protection.  
-> May your light guide me through shadow and trial.  
+> Hail Hekate, Keeper of the Keys,
+> Goddess of the Crossroads, of Magic and Transformation.
+> Bless this day with clarity, strength, and protection.
+> May your light guide me through shadow and trial.
 > So mote it be.
 
 （訳：
